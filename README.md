@@ -1,1 +1,1 @@
-# Sjs-ai-musi-creation
+# Sjs-ai-musiC-creation
